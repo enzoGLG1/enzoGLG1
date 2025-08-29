@@ -9,5 +9,3 @@ Meu nome é Enzo Gabriel
   
   enzogabrielms5@gmail.com
 
-
-![](  https://media1.tenor.com/m/4w2WGjtBlcEAAAAC/fafuke-fafuke-rainbow.gif)
