@@ -2,9 +2,8 @@
 
 Meu nome é Enzo Gabriel
 
-- Estou estudando no [Alura](https://www.alura.com.br)
 
-  ### Não entre em contato com minha pessoa 📫
+  ### Entre em contato 📫
 
   @enzo_gbms
   
